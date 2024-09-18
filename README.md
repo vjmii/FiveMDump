@@ -3,5 +3,4 @@ You can use it to find specific files that u have in mind and find a server that
 Easy to use and very helpful
 
 
-For More 👇
-https://discord.gg/3jm
+For More -> https://discord.gg/3jm
